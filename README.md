@@ -1,5 +1,5 @@
 # 💫 About Me:
-A teenager who hasn't touched grass in 2 years
+A Teenager who hasn't touched grass in 2 years
 
 
 ## 🌐 Socials:
